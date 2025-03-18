@@ -1,0 +1,44 @@
+Hii! swip to read about me! 
+ Say smth on guestbook: https://narvanahah.atabook.org/
+
+the second acc : @Rewrite001
+
+..
+
+[Uhh nothing, just some of my favourite characters! ]
+![d00d35b54fa206386af78598b199bb50](https://github.com/user-attachments/assets/12bb8d5e-3f49-45b8-947c-a9b83c06ce16)
+Moon-jo -Sfh
+
+![251c355d10808a4a5477ba45b54074e5](https://github.com/user-attachments/assets/90618ac3-2a00-4fef-8a11-a587207efe65)
+K! - bad and crazy (ALSO I LOVE SUYEOL TOO-)
+
+![IMG_20250315_160518_454](https://github.com/user-attachments/assets/f86c3408-0ef5-44af-a9c9-a03028b63f50)
+![e6118955912b30e1869d106e1a5c7e67](https://github.com/user-attachments/assets/10160b26-3d7d-464e-b071-e32405bd7093)
+lee-rang & Lee-yeon  -Totnt
+
+  * Well, there's some stuff about me!
+    · i am a multifandom person, so i could say i literally don't have a main fandom
+    
+     · for some reasons, i don't play ponytown everyday. /i might suddenly disappear after saying "gtg"
+    
+    · you can message me on tiktok (the link on bio) if you want to connect me !
+    
+  · Some of my fav fandoms!: Sth, sfh, totnt, bad&crazy, sg, omori, madfather, fnaf, dsaf, baldibasics, fpe,
+      Minecraft, sky cotl, and so many else that i don't remember 💔
+
+      · be comfortable talking about ships bc i'm fine with it! but not cursed ships/unless it's just kidding 
+
+      · i live in iran. yes a muslim but i QUITE respect to all religions. also i don't wear hijab
+
+    · ima lazy artist, and also a beginner a beginner at playing violin!
+- i dislike argues. so i always prefer to being nice.
+
+  - aswell, ima girl irl, but most people call me by the pony' gender
+
+ also, if you find me interesting, ... P L E A S E  I N T! bro i'm kinda a shy person and interacting.
+   , but please be comfortable! (i don't bite, trust.)
+
+ Also, tysm for reading!! ^^
+
+        ![2d6d6255640cd1504d77d1e1238598a8](https://github.com/user-attachments/assets/29758457-9ecb-4c04-9e52-443dfbbffd4c)
+   papa.
