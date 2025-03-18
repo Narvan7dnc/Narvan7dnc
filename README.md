@@ -40,5 +40,7 @@ lee-rang & Lee-yeon  -Totnt
 
  Also, tysm for reading!! ^^
 
-        ![2d6d6255640cd1504d77d1e1238598a8](https://github.com/user-attachments/assets/29758457-9ecb-4c04-9e52-443dfbbffd4c)
+ ![30733ed83eaa05966368e401e2f5819d](https://github.com/user-attachments/assets/f49d8e40-826e-4998-9ece-89add1225029)
+![Untitled264_20250216214358](https://github.com/user-attachments/assets/49542903-702d-4d99-be39-138ec61f433d)
+
    papa.
