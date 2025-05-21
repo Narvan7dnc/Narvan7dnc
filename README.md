@@ -33,19 +33,20 @@ lee-rang & Lee-yeon  -Totnt
     
     · you can message me on tiktok (the link on bio) if you want to connect me !
     
-  · Some of my fav fandoms!: Sth, sfh, totnt, bad&crazy, sg, omori, madfather, fnaf, dsaf, baldibasics, fpe,
+  · Some of my fav fandoms!: hannibal, Sth, sfh, totnt, bad&crazy, sg, omori, madfather, fnaf, dsaf, baldibasics, fpe,
       Minecraft, sky cotl, and so many else that i don't remember 💔
 
       · be comfortable talking about ships bc i'm fine with it! but not cursed ships/unless it's just kidding 
 
-      · i live in iran. yes a muslim but i QUITE respect to all religions. also i don't wear hijab
+      · i live in iran. yes a muslim but i QUITE respect to all religions. + i don't wear hijab and aren't like the other muslims you think and saw
 
-    · ima lazy artist, and also a beginner a beginner at playing violin!
+    · ima lazy artist lol (mostly on real paper)
+    
 - i dislike argues. so i always prefer to being nice.
 
   - aswell, ima girl irl, but most people call me by the pony' gender
 
- also, if you find me interesting, ... P L E A S E  I N T! bro i'm kinda a shy person and interacting.
+ also, if you find me interesting, ... P L E A S E  I N T! bro i'm kinda bad at talking 
    , but please be comfortable! (i don't bite, trust.)
 
  Also, tysm for reading!! ^^
