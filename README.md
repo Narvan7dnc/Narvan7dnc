@@ -1,8 +1,9 @@
 
   
-  "You and i, have begun to blur.."
+.    : "You and i, have begun to blur.." ,
   
 ![26a9947d86ef3db231db90a03b75f88e](https://github.com/user-attachments/assets/625d2777-fbc1-4e80-90fa-3d68e97989e0)
+(i love hannibal more than myself💔)
 
 
 
@@ -15,7 +16,7 @@ the second acc : @Rewrite001
 
 
 
-[Uhh nothing, just some of my favourite characters! ]
+[Uhh nothing, just some of my other favourite characters! ]
 ![d00d35b54fa206386af78598b199bb50](https://github.com/user-attachments/assets/12bb8d5e-3f49-45b8-947c-a9b83c06ce16)
 Moon-jo (mjjw forever) -Sfh
 
@@ -27,6 +28,9 @@ K! - bad and crazy (ALSO I LOVE SUYEOL TOO-)
 lee-rang & Lee-yeon  -Totnt
 
   * Well, there's some stuff about me!
+
+  · don't ask my age i'm not comfortable with it, but i'm a minor (not that young also lmao)
+
     · i am a multifandom person, so i could say i literally don't have a main fandom
     
      · for some reasons, i don't play ponytown everyday. /i might suddenly disappear after saying "gtg"
