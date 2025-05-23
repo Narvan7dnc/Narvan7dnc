@@ -50,11 +50,13 @@ lee-rang & Lee-yeon  -Totnt
 
   - aswell, ima girl irl, but most people call me by the pony' gender
 
- also, if you find me interesting, ... P L E A S E  I N T! bro i'm kinda bad at talking 
+ also, if you find me interesting, ... P L E A S E   I N T! bro i'm kinda bad at talking 
    , but please be comfortable! (i don't bite, trust.)
 
  Also, tysm for reading!! ^^
 
+
+-random facts, when i give a crown/answer whispers like ^^, im 90% trying to int, usually fails help✨-
  ![30733ed83eaa05966368e401e2f5819d](https://github.com/user-attachments/assets/f49d8e40-826e-4998-9ece-89add1225029)
 ![Untitled264_20250216214358](https://github.com/user-attachments/assets/49542903-702d-4d99-be39-138ec61f433d)
 
