@@ -29,7 +29,7 @@ lee-yeon & Lee-rang  -Totnt
 
   * Well, there's some stuff about me!
 
-  · don't ask my age i'm not comfortable with it, but i'm a minor (not that young also lmao) random but i repect every age as long the person is understandable mentally
+  · don't ask my age i'm not comfortable with it, but i'm a minor (not that young also lmao) random but i respect every age as long the person is understandable mentally
 
     · i am a multifandom person, so i could say i literally don't have a main fandom
     
