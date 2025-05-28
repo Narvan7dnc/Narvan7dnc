@@ -25,11 +25,11 @@ K! - bad and crazy (ALSO I LOVE SUYEOL TOO-)
 
 ![IMG_20250315_160518_454](https://github.com/user-attachments/assets/f86c3408-0ef5-44af-a9c9-a03028b63f50)
 ![e6118955912b30e1869d106e1a5c7e67](https://github.com/user-attachments/assets/10160b26-3d7d-464e-b071-e32405bd7093)
-lee-rang & Lee-yeon  -Totnt
+lee-yeon & Lee-rang  -Totnt
 
   * Well, there's some stuff about me!
 
-  · don't ask my age i'm not comfortable with it, but i'm a minor (not that young also lmao)
+  · don't ask my age i'm not comfortable with it, but i'm a minor (not that young also lmao) random but i repect every age as long the person is understandable mentally
 
     · i am a multifandom person, so i could say i literally don't have a main fandom
     
