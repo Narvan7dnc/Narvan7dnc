@@ -53,7 +53,11 @@ lee-yeon & Lee-rang  -Totnt
  also, if you find me interesting, ... P L E A S E   I N T! bro i'm kinda bad at talking 
    , but please be comfortable! (i don't bite, trust.)
 
- Also, tysm for reading!! ^^
+  - C+h/(prefers sitting beside) = friends can anytime i dont mind, if youre not a friend who wants to c+h/sit, ask first
+
+  - iny = anyone can anytime (literally), i dont mind it at all unless im in away mode (u still can w2i). i would probably answer whispers late or be afk if im on busy/away mode
+
+ Also, ty for reading!! ^^
 
 
 -random facts, when i give a crown/answer whispers like ^^, im 90% trying to int, usually fails help✨-
