@@ -18,14 +18,7 @@ the second account btw : @Rewrite001
 
 [Uhh nothing, just some of my favourite kdrama characters- ]  <- im not a very big fan of kdramas, just saying
 ![d00d35b54fa206386af78598b199bb50](https://github.com/user-attachments/assets/12bb8d5e-3f49-45b8-947c-a9b83c06ce16)
-Moon-jo (mjjw forever) -Sfh
-
-![251c355d10808a4a5477ba45b54074e5](https://github.com/user-attachments/assets/90618ac3-2a00-4fef-8a11-a587207efe65)
-K! - bad and crazy (ALSO I LOVE SUYEOL TOO-)
-
-![IMG_20250315_160518_454](https://github.com/user-attachments/assets/f86c3408-0ef5-44af-a9c9-a03028b63f50)
-![e6118955912b30e1869d106e1a5c7e67](https://github.com/user-attachments/assets/10160b26-3d7d-464e-b071-e32405bd7093)
-lee-yeon & Lee-rang  -Totnt
+Moon-jo (mjjw forever) -Sfh ![251c355d10808a4a5477ba45b54074e5](https://github.com/user-attachments/assets/90618ac3-2a00-4fef-8a11-a587207efe65)K! - bad and crazy (ALSO I LOVE SUYEOL TOO-) ![IMG_20250315_160518_454](https://github.com/user-attachments/assets/f86c3408-0ef5-44af-a9c9-a03028b63f50)![e6118955912b30e1869d106e1a5c7e67](https://github.com/user-attachments/assets/10160b26-3d7d-464e-b071-e32405bd7093) lee-yeon & Lee-rang  -Totnt
 
   * Well, there's some stuff about me
 
