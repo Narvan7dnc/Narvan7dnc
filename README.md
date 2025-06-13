@@ -32,8 +32,10 @@ the second account btw : @Rewrite001
   ; 𝗗𝗼𝗻'𝘁 𝗮𝘀𝗸 𝗺𝘆 𝗮𝗴𝗲. i'm not comfortable with it, but i'm a minor (not that young also lol) random but i respect every age as long the person is just alright mentally
 
 .
-   𝗕𝗮𝘀𝗶𝗰 𝗱𝗻𝗶 : proshippers, p3do people, people who just want to make an arguement in first chance, people who wanna talk about their problems 24/7 (i mean 24/7 fr, don't get me wrong i don't mind listening but being friends JUST to share those things? no.) 
+   𝗱𝗻𝗶 :
    -
+    proshippers, p3do people, people who just want to make an arguement in first chance, people who wanna talk about their problems 24/7 (i mean 24/7 fr, don't get me wrong i don't mind listening but being friends JUST to share those things? no.) 
+   
    
  btw: joke normal cursed ships (example character x grass, not like two characters that should NOT be shipped) are okay as long it's joking 
 
@@ -45,7 +47,8 @@ the second account btw : @Rewrite001
   · Some of fandoms i am in: hannibal, Sth, sfh, totnt, bad&crazy, sg, omori, madfather, fnaf, dsaf, baldibasics, fpe, Minecraft, sky cotl, and so many else that i don't remember 💔
  
 
-      * i live in iran. yes a muslim but i QUITE respect to all religions. + i don't wear hijab and aren't like the other muslims you think and saw so don't hit me with "isnt that/this stuff haram for yall?!"
+·i live in iran. yes a muslim but i QUITE respect to all religions. + i don't wear hijab and aren't like the other muslims you think and saw, so don't hit me with "isnt that/this stuff haram for yall?! why do you like gay people?!" (and idc if you're a muslim who is reading this and you say i'm not a muslim)
+
 
     · ima lazy artist lol (mostly draws on real paper)
     
