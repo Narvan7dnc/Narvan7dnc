@@ -51,7 +51,7 @@ _____
 ·i live in iran. yes a muslim but i QUITE respect to all religions. + i don't wear hijab and aren't like the other muslims you think and saw, so don't hit me with "isnt that/this stuff haram for yall?! why do you like gay people?!" (and idc if you're a muslim who is reading this and you say i'm not a muslim)
 
 
-    · ima lazy artist lol (mostly draws on real paper)
+    · ima lazy artist lol (mostly draws on real paper/canvas, i very rarely draw digital because i have to draw with fingers on phone)
     
 - i dislike argues. so i always prefer to avoid it, specially when its over a simple stupid thing (i saw some people argue over a spot.)
 
