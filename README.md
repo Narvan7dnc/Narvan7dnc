@@ -69,7 +69,7 @@ _____
 
   - C+h/sitting = friends can anytime i dont mind; if you're not a friend who wants to c+h/sit, ask first
 
-  - int = anyone can anytime (literally) as long you're not in dni list, i dont mind it at all unless im in away mode (u still can w2i). i would probably answer whispers late or be afk if im on busy/away mode
+  - int = anyone can anytime (literally) as long you're not in dni list, i dont mind it unless my name says dni or dniuid. i would probably answer whispers late or be afk if im on busy/away mode but c+h and sitting are alright (specially if i int to u first often-
 
  Also, thanks for reading! i yapped too much damn. 
 -
