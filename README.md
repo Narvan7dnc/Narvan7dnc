@@ -37,7 +37,7 @@ the second account btw : @Rewrite001
 .
    𝗱𝗻𝗶 :
    -
-proshippers, p3do people, people who just want to make an arguement in first chance, people who wanna talk about their problems 24/7 (i mean 24/7 fr, don't get me wrong i don't mind listening but being friends JUST to share those things? no.) 
+proshippers, p3do people, homophibics, people who just want to make an arguement in first chance, people who wanna talk about their problems 24/7 (i mean 24/7 fr, don't get me wrong i don't mind listening but being friends JUST to share those things? no.) 
    
 _____
 
