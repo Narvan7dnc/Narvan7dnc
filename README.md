@@ -48,7 +48,7 @@ _____
      · for some -reasons-, 'sometimes' i don't play ponytown everyday. /i might suddenly disappear after randomly saying "gtg"
     
     
-  · Some of fandoms i am in: hannibal, Sth, sfh, totnt, bad&crazy, sg, omori, madfather, fnaf, dsaf, baldibasics, fpe, Minecraft, sky cotl, and so many else that i don't remember 💔
+  · Some of fandoms i am in/show or games i love: hannibalnbc, Sth, sherlockbbc, goodomens, sfh, totnt, bad&crazy, sg, Arcane, omori, naruto, the girl from the other side, ghibli animes, ponytown, madfather, fnaf, dsaf, baldibasics, fpe, Minecraft (WeAlsoLoveMonsterSchool), sky cotl, loki, invincible and so many else that i don't remember 💔
  
 
 ·i live in iran. yes a muslim but i QUITE respect to all religions. + i don't wear hijab and aren't like the other muslims you think and saw, so don't hit me with "isnt that/this stuff haram for yall?! why do you like gay people?!" (and idc if you're a muslim who is reading this and you say i'm not a muslim)
