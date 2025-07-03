@@ -18,7 +18,7 @@ Hello. it's a long readme so goodluck-
 
  Say smth on guestbook: https://narvanahah.atabook.org/
  .
- prns: @Narvan_ • Pronouns.page https://share.google/cuS5OcWv1KVQ1y4Wy
+ prns: @Narvan_Pronouns.page.https://share.google/cuS5OcWv1KVQ1y4Wy
 .
  .
   you can message me on tiktok (the link on bio) if you want to connect me!
