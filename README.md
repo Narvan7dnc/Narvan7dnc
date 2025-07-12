@@ -4,7 +4,7 @@
 -
   
 ![26a9947d86ef3db231db90a03b75f88e](https://github.com/user-attachments/assets/625d2777-fbc1-4e80-90fa-3d68e97989e0)
-(i love hannibal more than myself💔)
+(i just love the show sm ,)
 
 
            
