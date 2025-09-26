@@ -51,7 +51,7 @@ _____
   · Some shows or games i love: hannibalnbc, Attack on titan, Arcane, 12 angry men, Sth, sherlockbbc, Dexter, sfh, totnt, bad&crazy, sg, omori, naruto, the girl from the other side, ghibli animes(especially "when marni was there"), ponytown, madfather, fnaf, dsaf, baldibasics, fpe, goodomens, Minecraft (WeAlsoLoveMonsterSchool), sky cotl, loki, invincible and so many else that i don't remember 💔
  
 
-·i live in iran. yes a muslim but i QUITE respect to all religions. + i don't wear hijab and aren't like the other muslims you think and saw, so don't hit me with "isnt that/this stuff haram for yall?! why do you like gay people?!" (and idc if you're a muslim who is reading this and you say i'm not a muslim)
+·i live in iran. yes a muslim but i QUITE respect to all religions. + i don't wear hijab and aren't like the other muslims you think and saw, so don't hit me with "isnt that/this stuff haram for yall?! why you don't fast!?!" (and idc if you're a muslim who is reading this and you say i'm not a muslim)
 
 *· my first language is persian(also known as farsi) and it isn't English, i also never gone to english classes and somehow learnt it from playing games and interacting (at start i used google translate a lot) and yep. talking to me is like not knowing some fruits name but knowing random stuff loll  (also please fix me if i use wrong words or grummer!)
 
