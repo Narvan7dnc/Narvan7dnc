@@ -55,8 +55,8 @@ _____
   ![1000019505](https://github.com/user-attachments/assets/e5bd8063-0af7-4cb4-bf87-0fbe86b00e82)
   . "You were right, Armin;..
 
-   I'm a  𝙎𝙡𝙖𝙫𝙚  to 𝙁𝙧𝙚𝙚𝙙𝙤𝙢  . "
-    .
+  . . I'm a  𝙎𝙡𝙖𝙫𝙚  to 𝙁𝙧𝙚𝙚𝙙𝙤𝙢  . "
+.
  
  .
 ·i live in iran. yes a muslim but i QUITE respect to all religions. + i don't wear hijab and aren't like the other muslims you think and saw, so don't hit me with "isnt that/this stuff haram for yall?! why you don't fast!?!" (and idc if you're a muslim who is reading this and you say i'm not a muslim)
