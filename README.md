@@ -85,7 +85,9 @@ Moon-jo (mjjw forever) -Sfh ![251c355d10808a4a5477ba45b54074e5](https://github.c
 
 
 ..
- ![30733ed83eaa05966368e401e2f5819d](https://github.com/user-attachments/assets/f49d8e40-826e-4998-9ece-89add1225029)
-![Untitled264_20250216214358](https://github.com/user-attachments/assets/49542903-702d-4d99-be39-138ec61f433d)
+ ![1000019505](https://github.com/user-attachments/assets/80a0c44a-aa71-42ec-8c8d-6f903fb4de94)
 
-   papa.
+
+   . "You were right, Armin;..
+
+        I'm a  𝙎𝙡𝙖𝙫𝙚  to 𝙁𝙧𝙚𝙚𝙙𝙤𝙢  . "
