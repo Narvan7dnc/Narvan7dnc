@@ -53,8 +53,8 @@ _____
   .
 
   ![1000019505](https://github.com/user-attachments/assets/e5bd8063-0af7-4cb4-bf87-0fbe86b00e82)
-  . "You were right, Armin;..
-
+  . "You were right, Armin,.
+          i'm not free;
   . . I'm a  𝙎𝙡𝙖𝙫𝙚  to 𝙁𝙧𝙚𝙚𝙙𝙤𝙢  . "
 .
  
