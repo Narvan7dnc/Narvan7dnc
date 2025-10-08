@@ -49,8 +49,16 @@ _____
     
     
   · Some shows or games i love: hannibalnbc, Attack on titan, Arcane, 12 angry men, Sth, sherlockbbc, Dexter, sfh, totnt, bad&crazy, sg, omori, naruto, the girl from the other side, ghibli animes(especially "when marni was there"), ponytown, madfather, fnaf, dsaf, baldibasics, fpe, goodomens, Minecraft (WeAlsoLoveMonsterSchool), sky cotl, loki, invincible and so many else that i don't remember 💔
- 
 
+  .
+
+  ![1000019505](https://github.com/user-attachments/assets/e5bd8063-0af7-4cb4-bf87-0fbe86b00e82)
+  . "You were right, Armin;..
+
+   I'm a  𝙎𝙡𝙖𝙫𝙚  to 𝙁𝙧𝙚𝙚𝙙𝙤𝙢  . "
+    .
+ 
+ .
 ·i live in iran. yes a muslim but i QUITE respect to all religions. + i don't wear hijab and aren't like the other muslims you think and saw, so don't hit me with "isnt that/this stuff haram for yall?! why you don't fast!?!" (and idc if you're a muslim who is reading this and you say i'm not a muslim)
 
 *· my first language is persian(also known as farsi) and it isn't English, i also never gone to english classes and somehow learnt it from playing games and interacting (at start i used google translate a lot) and yep. talking to me is like not knowing some fruits name but knowing random stuff loll  (also please fix me if i use wrong words or grummer!)
@@ -87,12 +95,4 @@ Moon-jo (mjjw forever) -Sfh ![251c355d10808a4a5477ba45b54074e5](https://github.c
 .
 .
 .
-.
-.
-..
- ![1000019505](https://github.com/user-attachments/assets/80a0c44a-aa71-42ec-8c8d-6f903fb4de94)
 
-
-. "You were right, Armin;..
-
-   I'm a  𝙎𝙡𝙖𝙫𝙚  to 𝙁𝙧𝙚𝙚𝙙𝙤𝙢  . "
