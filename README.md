@@ -22,9 +22,11 @@ _____
   - int = anyone can anytime (literally),
     - dni = in case the name says it & rude people
  
-.
-  ![1000019505](https://github.com/user-attachments/assets/e5bd8063-0af7-4cb4-bf87-0fbe86b00e82)
-  . "You were right, Armin,.
+.![1000021977](https://github.com/user-attachments/assets/ed326059-c373-4c54-98bb-71f259216b5f)
+,
+        ,
+  .           
+  "You were right, Armin,.
           i'm not free;
   . . I'm a  𝙎𝙡𝙖𝙫𝙚  to 𝙁𝙧𝙚𝙚𝙙𝙤𝙢  . "
 .
