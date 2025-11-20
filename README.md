@@ -1,10 +1,11 @@
 
   
-.    : "You and i, have begun to blur.." ,
--
-  
-![26a9947d86ef3db231db90a03b75f88e](https://github.com/user-attachments/assets/625d2777-fbc1-4e80-90fa-3d68e97989e0)
-(i just love the show sm ,)
+.    : .           
+  "You were right, Armin,.
+          i'm not free;
+  . . I'm a  𝙎𝙡𝙖𝙫𝙚  to 𝙁𝙧𝙚𝙚𝙙𝙤𝙢  . "
+
+  ![1000022144](https://github.com/user-attachments/assets/8764919e-5308-4dec-8d36-dd2b9ad0fe68)
 
 
  Say smth on guestbook: https://narvanahah.atabook.org/
@@ -19,14 +20,6 @@ _____
 
   - C+h/sitting = friends can anytime i dont mind; if you're not a friend who wants to c+h/sit, ask first
 
-  - int = anyone can anytime (literally),
+  - int = anyone can anytime (literally), feel free
     - dni = in case the name says it & rude people
  
-.![1000021977](https://github.com/user-attachments/assets/ed326059-c373-4c54-98bb-71f259216b5f)
-,
-        ,
-  .           
-  "You were right, Armin,.
-          i'm not free;
-  . . I'm a  𝙎𝙡𝙖𝙫𝙚  to 𝙁𝙧𝙚𝙚𝙙𝙤𝙢  . "
-.
