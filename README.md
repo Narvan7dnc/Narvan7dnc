@@ -13,7 +13,7 @@ _______________
 
 _____
 
-  · Some shows or games i love: hannibalnbc, Attack on titan, Arcane, 12 angry men, Sth, Moriarty the petriot, death note, sherlockbbc, Dexter, sfh, totnt, bad&crazy, sg, omori, naruto, the girl from the other side, ghibli animes(especially "when marni was there"), ponytown, madfather, fnaf, dsaf, baldibasics, fpe, goodomens, Minecraft (WeAlsoLoveMonsterSchool), sky cotl, loki, invincible and so many else that i don't remember 💔
+  · Some shows or games i love: hannibalnbc, death note, Attack on titan, Arcane, 12 angry men, Monster, Moriarty the petriot, sherlockbbc, Dexter, sfh, totnt, sg, omori, naruto, the girl from the other side, ghibli animes(especially "when marni was there"), ponytown, madfather, fnaf, dsaf, baldibasics, fpe, goodomens, Minecraft (WeAlsoLoveMonsterSchool), sky cotl, loki, bad&crazy, invincible and so many else that i don't remember 💔
 
   (the list doesn't have a special Arrangement(
 ____
