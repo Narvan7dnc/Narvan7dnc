@@ -1,27 +1,23 @@
- ‌ ‌ "You were right, Armin,.‌ ‌ ‌‌ ‌‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌ ‌ ‌  ‌ 
-   i'm not free;  
-         . . I'm a  𝙎𝙡𝙖𝙫𝙚  to 𝙁𝙧𝙚𝙚𝙙𝙤𝙢  . "
+., Peace, would be meaningless without an existence to feel it, and give meaning to it;
 
-  ![1000022144](https://github.com/user-attachments/assets/8764919e-5308-4dec-8d36-dd2b9ad0fe68)
+    That's why we live this life, 
+  no matter how the cruelty often is more than the beauty. 
+ 
+  ![1000022692](https://github.com/user-attachments/assets/4f667e01-1399-4ea7-85d2-97b59bf23f47)
+
 
 _______________
 
- Say smth on guestbook: https://narvanahah.atabook.org/
+ Say smth on guestbook,. or don't, it's your choice. i appreciate messages. : https://narvanahah.atabook.org/
  .
- 
-  ; 𝗗𝗼𝗻'𝘁 𝗮𝘀𝗸 𝗺𝘆 𝗮𝗴𝗲. i'm not comfortable with it, but i'm a minor (not that young also lol) random but i respect every age as long the person is just alright mentally
-
-_____
-
-  · Some shows or games i love: hannibalnbc, death note, Attack on titan, Arcane, 12 angry men, Monster, Moriarty the petriot, sherlockbbc, Dexter, sfh, totnt, sg, omori, naruto, the girl from the other side, ghibli animes(especially "when marni was there"), ponytown, madfather, fnaf, dsaf, baldibasics, fpe, goodomens, Minecraft (WeAlsoLoveMonsterSchool), sky cotl, loki, bad&crazy, invincible and so many else that i don't remember 💔
-
-  (the list doesn't have a special Arrangement(
 ____
 
 -
 
-  - C+h/sitting = friends can anytime i dont mind; if you're not a friend who wants to c+h/sit, ask first
+  - C+h/sitting = friends can anytime i dont mind; if you're not a friend who wants to c+h/sit, ask first/if you don't it's still okay i don't mind
 
   - int = anyone can anytime (literally), feel free
-    - dni = in case the name says it & rude people
+    - dni = rude people. idk everyone rarely even int
+
+  ✓  kin : mostly character of the skin
  
