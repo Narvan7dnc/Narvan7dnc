@@ -7,7 +7,8 @@ seems a house of leaves
        
 moments before the wind.
  
-  !<img width="594" height="406" alt="1000049310" src="https://github.com/user-attachments/assets/d7d5b482-b8f9-4896-ab08-cebb9376f66f" />
+  <img width="1993" height="1199" alt="1000049312" src="https://github.com/user-attachments/assets/5d44fd4d-6dd0-49fc-9d2f-4aa777d40110" />
+
 
 
 _______________
