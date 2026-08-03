@@ -1,9 +1,13 @@
-., Peace, would be meaningless without an existence to feel it, and give meaning to it;
-
-    it may be the reason we live this life, 
-  no matter how the cruelty often is more than the beauty. 
+., Little solace comes
+to those who grieve
+when thoughts keep drifting
+as walls keep shifting
+and this great blue world of ours
+seems a house of leaves
+       
+moments before the wind.
  
-  ![1000022692](https://github.com/user-attachments/assets/4f667e01-1399-4ea7-85d2-97b59bf23f47)
+  !<img width="594" height="406" alt="1000049310" src="https://github.com/user-attachments/assets/d7d5b482-b8f9-4896-ab08-cebb9376f66f" />
 
 
 _______________
